@@ -1,4 +1,4 @@
-from deepseek_client import DeepseekClient
+from src.deepseek_client import DeepseekClient
 import logging
 import json
 import time
