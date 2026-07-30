@@ -1,1 +1,55 @@
-⌀ 刀攀愀氀 䔀猀琀愀琀攀 匀挀爀愀瀀攀爀਀਀匀挀爀愀瀀攀爀 搀攀 爀攀渀琀愀猀 搀攀 挀漀渀猀甀氀琀漀爀椀漀猀 礀 漀昀椀挀椀渀愀猀 攀渀 䌀䐀䴀堀Ⰰ 挀漀渀猀琀爀甀椀搀漀 挀漀渀 甀渀 攀渀昀漀焀甀攀 攀砀瀀攀爀椀洀攀渀琀愀氀㨀਀攀氀 洀搀甀氀漀 最攀渀攀爀愀搀漀爀 甀猀愀 氀愀 ⨀⨀䄀倀䤀 搀攀 䐀攀攀瀀猀攀攀欀⨀⨀ 瀀愀爀愀 瀀爀漀搀甀挀椀爀 攀氀 愀渀搀愀洀椀愀樀攀 搀攀氀 瀀爀漀礀攀挀琀漀਀⠀攀猀琀爀甀挀琀甀爀愀 搀攀氀 猀挀爀愀瀀攀爀Ⰰ 昀甀渀挀椀漀渀攀猀 搀攀 瀀爀漀挀攀猀愀洀椀攀渀琀漀 礀 瘀椀猀甀愀氀椀稀愀挀椀漀渀攀猀⤀Ⰰ 焀甀攀 搀攀猀瀀甀猀 猀攀਀爀攀瘀椀猀愀 礀 愀樀甀猀琀愀 愀 洀愀渀漀⸀਀਀⌀⌀ 䌀洀漀 昀甀渀挀椀漀渀愀਀਀䔀氀 瀀爀漀礀攀挀琀漀 琀椀攀渀攀 搀漀猀 瀀愀爀琀攀猀㨀਀਀㄀⸀ ⨀⨀䜀攀渀攀爀愀搀漀爀⨀⨀ ⠀怀爀攀愀氀开攀猀琀愀琀攀开猀挀爀愀瀀攀爀⸀瀀礀怀⤀㨀 瀀椀搀攀 愀 怀搀攀攀瀀猀攀攀欀ⴀ爀攀愀猀漀渀攀爀怀 攀氀 挀搀椀最漀 戀愀猀攀 搀攀氀਀   瀀爀漀礀攀挀琀漀 ᐠ 氀愀 挀氀愀猀攀 搀攀氀 猀挀爀愀瀀攀爀Ⰰ 昀甀渀挀椀漀渀攀猀 搀攀 氀椀洀瀀椀攀稀愀 搀攀 搀愀琀漀猀 ⠀瀀爀攀挀椀漀Ⰰ 洀눀Ⰰ 最攀漀挀漀搀椀昀椀挀愀挀椀渀⤀਀   礀 瘀椀猀甀愀氀椀稀愀挀椀漀渀攀猀 ᐠ 挀漀渀 爀攀椀渀琀攀渀琀漀猀Ⰰ 戀愀挀欀漀昀昀 礀 氀漀最最椀渀最⸀ 䜀甀愀爀搀愀 氀漀猀 爀攀猀甀氀琀愀搀漀猀 挀漀洀漀 洀搀甀氀漀猀਀   搀攀 倀礀琀栀漀渀 礀 氀漀猀 瀀愀爀洀攀琀爀漀猀 搀攀 戀切猀焀甀攀搀愀 攀渀 怀猀攀愀爀挀栀开瀀愀爀愀洀猀⸀樀猀漀渀怀⸀਀㈀⸀ ⨀⨀䌀搀椀最漀 最攀渀攀爀愀搀漀 礀 挀甀爀愀搀漀⨀⨀ ⠀怀猀爀挀⼀怀⤀㨀਀   ⴀ 怀爀攀愀氀开攀猀琀愀琀攀开猀琀爀甀挀琀甀爀攀⸀瀀礀怀 ᐠ 挀氀愀猀攀 怀刀攀愀氀䔀猀琀愀琀攀匀挀爀愀瀀攀爀怀㨀 瀀愀爀洀攀琀爀漀猀 搀攀 戀切猀焀甀攀搀愀਀     ⠀甀戀椀挀愀挀椀渀Ⰰ 琀椀瀀漀 搀攀 椀渀洀甀攀戀氀攀Ⰰ 昀甀攀渀琀攀猀⤀ 礀 洀琀漀搀漀猀 搀攀 猀挀爀愀瀀椀渀最 挀漀渀 怀爀攀焀甀攀猀琀猀怀⸀਀   ⴀ 怀搀攀攀瀀猀攀攀欀开挀氀椀攀渀琀⸀瀀礀怀 ᐠ 挀氀椀攀渀琀攀 搀攀 氀愀 䄀倀䤀 搀攀 䐀攀攀瀀猀攀攀欀 ⠀洀漀搀攀氀漀猀 怀搀攀攀瀀猀攀攀欀ⴀ挀栀愀琀怀 礀਀     怀搀攀攀瀀猀攀攀欀ⴀ爀攀愀猀漀渀攀爀怀⤀ 挀漀渀 洀愀渀攀樀漀 搀攀 攀爀爀漀爀攀猀Ⰰ 爀攀椀渀琀攀渀琀漀猀 礀 氀漀最最椀渀最⸀਀   ⴀ 怀瘀椀猀甀愀氀椀稀愀琀椀漀渀猀⸀瀀礀怀 ᐠ 昀甀渀挀椀漀渀攀猀 搀攀 瘀椀猀甀愀氀椀稀愀挀椀渀 搀攀 爀攀猀甀氀琀愀搀漀猀⸀਀਀䰀愀 戀切猀焀甀攀搀愀 漀戀樀攀琀椀瘀漀㨀 挀漀渀猀甀氀琀漀爀椀漀猀 洀搀椀挀漀猀 攀渀 爀攀渀琀愀 攀渀 氀愀 稀漀渀愀 搀攀 䠀椀瀀搀爀漀洀漀 䌀漀渀搀攀猀愀Ⰰ਀甀猀愀渀搀漀 昀甀攀渀琀攀猀 挀漀洀漀 䤀渀洀甀攀戀氀攀猀㈀㐀Ⰰ 倀爀漀瀀攀爀愀琀椀 礀 嘀椀瘀愀渀甀渀挀椀漀猀⸀਀਀⌀⌀ 䤀渀猀琀愀氀愀挀椀渀਀਀怀怀怀戀愀猀栀਀最椀琀 挀氀漀渀攀 栀琀琀瀀猀㨀⼀⼀最椀琀栀甀戀⸀挀漀洀⼀刀漀搀洀爀　㤀㈀⼀爀攀愀氀开攀猀琀愀琀攀开猀挀爀愀瀀攀爀⸀最椀琀਀挀搀 爀攀愀氀开攀猀琀愀琀攀开猀挀爀愀瀀攀爀਀瀀礀琀栀漀渀 ⴀ洀 瘀攀渀瘀 瘀攀渀瘀਀瘀攀渀瘀尀匀挀爀椀瀀琀猀尀愀挀琀椀瘀愀琀攀      ⌀ 䔀渀 䰀椀渀甀砀⼀䴀愀挀㨀 猀漀甀爀挀攀 瘀攀渀瘀⼀戀椀渀⼀愀挀琀椀瘀愀琀攀਀瀀椀瀀 椀渀猀琀愀氀氀 ⴀ爀 爀攀焀甀椀爀攀洀攀渀琀猀⸀琀砀琀਀怀怀怀਀਀⌀⌀ 䌀漀渀昀椀最甀爀愀挀椀渀਀਀䔀氀 挀氀椀攀渀琀攀 搀攀 䐀攀攀瀀猀攀攀欀 氀攀攀 氀愀 䄀倀䤀 欀攀礀 搀攀 氀愀 瘀愀爀椀愀戀氀攀 搀攀 攀渀琀漀爀渀漀 怀䐀䔀䔀倀匀䔀䔀䬀开䄀倀䤀开䬀䔀夀怀㨀਀਀怀怀怀戀愀猀栀਀猀攀琀 䐀䔀䔀倀匀䔀䔀䬀开䄀倀䤀开䬀䔀夀㴀琀甀ⴀ愀瀀椀ⴀ欀攀礀    ⌀ 䔀渀 䰀椀渀甀砀⼀䴀愀挀㨀 攀砀瀀漀爀琀 䐀䔀䔀倀匀䔀䔀䬀开䄀倀䤀开䬀䔀夀㴀⸀⸀⸀਀怀怀怀਀਀⌀⌀ 唀猀漀਀਀怀怀怀戀愀猀栀਀瀀礀琀栀漀渀 爀攀愀氀开攀猀琀愀琀攀开猀挀爀愀瀀攀爀⸀瀀礀਀怀怀怀਀਀䜀攀渀攀爀愀 氀漀猀 洀搀甀氀漀猀 戀愀猀攀 搀攀氀 瀀爀漀礀攀挀琀漀 礀 最甀愀爀搀愀 氀漀猀 瀀愀爀洀攀琀爀漀猀 搀攀 戀切猀焀甀攀搀愀⸀਀਀⌀⌀ 䔀猀琀愀搀漀਀਀倀爀漀礀攀挀琀漀 攀砀瀀攀爀椀洀攀渀琀愀氀 攀渀 瀀愀甀猀愀⸀ 䔀氀 愀渀搀愀洀椀愀樀攀 最攀渀攀爀愀搀漀 昀甀渀挀椀漀渀愀㬀 昀愀氀琀愀 挀漀渀攀挀琀愀爀 攀氀਀猀挀爀愀瀀椀渀最 攀渀 瘀椀瘀漀 挀漀渀琀爀愀 氀漀猀 瀀漀爀琀愀氀攀猀 椀渀洀漀戀椀氀椀愀爀椀漀猀⸀਀
+# Real Estate Scraper
+
+Scraper de rentas de consultorios y oficinas en CDMX, construido con un enfoque experimental:
+el módulo generador usa la **API de Deepseek** para producir el andamiaje del proyecto
+(estructura del scraper, funciones de procesamiento y visualizaciones), que después se
+revisa y ajusta a mano.
+
+## Cómo funciona
+
+El proyecto tiene dos partes:
+
+1. **Generador** (`real_estate_scraper.py`): pide a `deepseek-reasoner` el código base del
+   proyecto — la clase del scraper, funciones de limpieza de datos (precio, m², geocodificación)
+   y visualizaciones — con reintentos, backoff y logging. Guarda los resultados como módulos
+   de Python y los parámetros de búsqueda en `search_params.json`.
+2. **Código generado y curado** (`src/`):
+   - `real_estate_structure.py` — clase `RealEstateScraper`: parámetros de búsqueda
+     (ubicación, tipo de inmueble, fuentes) y métodos de scraping con `requests`.
+   - `deepseek_client.py` — cliente de la API de Deepseek (modelos `deepseek-chat` y
+     `deepseek-reasoner`) con manejo de errores, reintentos y logging.
+   - `visualizations.py` — funciones de visualización de resultados.
+
+La búsqueda objetivo: consultorios médicos en renta en la zona de Hipódromo Condesa,
+usando fuentes como Inmuebles24, Properati y Vivanuncios.
+
+## Instalación
+
+```bash
+git clone https://github.com/Rodmr092/real_estate_scraper.git
+cd real_estate_scraper
+python -m venv venv
+venv\Scripts\activate      # En Linux/Mac: source venv/bin/activate
+pip install -r requirements.txt
+```
+
+## Configuración
+
+El cliente de Deepseek lee la API key de la variable de entorno `DEEPSEEK_API_KEY`:
+
+```bash
+set DEEPSEEK_API_KEY=tu-api-key    # En Linux/Mac: export DEEPSEEK_API_KEY=...
+```
+
+## Uso
+
+```bash
+python real_estate_scraper.py
+```
+
+Genera los módulos base del proyecto y guarda los parámetros de búsqueda.
+
+## Estado
+
+Proyecto experimental en pausa. El andamiaje generado funciona; falta conectar el
+scraping en vivo contra los portales inmobiliarios.
